@@ -1,1 +1,0 @@
-<img src="https://tu.my/i/2026/07/03/6a475d15d83bf.jpeg" width="700" alt="" />
