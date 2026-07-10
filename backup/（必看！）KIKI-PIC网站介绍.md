@@ -1,1 +1,1 @@
-<img src="https://imgchr.com/i/pmsZm5V" width="700" alt="" />
+<img src="https://s41.ax1x.com/2026/07/10/pmsZm5V.png" width="700" alt="" />
