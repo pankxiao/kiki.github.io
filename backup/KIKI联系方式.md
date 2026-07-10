@@ -1,2 +1,2 @@
-<img src="https://tu.my/i/2026/07/03/6a47707619068.jpeg" width="700" alt="" />
-<img src="https://tu.my/i/2026/07/04/6a48adeb642bc.jpeg" width="700" alt="" />
+<img src="https://s41.ax1x.com/2026/07/10/pmsZuCT.png" width="700" alt="" />
+<img src="https://s41.ax1x.com/2026/07/10/pmsZK8U.png" width="700" alt="" />
